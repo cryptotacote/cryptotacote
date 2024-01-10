@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Tacote
+- Crypto degen and NFT entusiast
